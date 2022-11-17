@@ -1,0 +1,3 @@
+- 👋 My Nicky : NaRKoXy
+- 👀 Hope for someday i will best...
+- 🌱 Still learning PHP/HTML/C#/C++/PYTHON
